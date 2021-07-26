@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: Internship, Project, Research papers.
 - 📫 How to reach me contact no:9775535251
                      Email: ishitapahar742@gmail.com
-                     Linkedin id:linkedin.com/in/ishita-pahari-aa16841a9
+                     Linkedin id: https://www.linkedin.com/in/ishita-pahari-aa16841a9/
 
 <!---
 Ishita-2001/Ishita-2001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
